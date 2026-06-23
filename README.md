@@ -1,4 +1,4 @@
-# NaiXi Nexitally奶昔机场官方地址(2026年6月22日更新)
+# NaiXi Nexitally奶昔机场官方地址(2026年6月23日更新)
 官方最新地址：[nxonearth.com](https://nxonearth.com/signupbyemail.aspx?MemberCode=71c53b664dfa4413b7b34ffd5cd11f5820230223165339)  
 用国内家宽可登录
 

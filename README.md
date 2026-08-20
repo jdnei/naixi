@@ -3,8 +3,14 @@
 
 # NaiXi Nexitally奶昔机场 专线机场 官方地址(2026年8月19日更新)
 NaiXi Nexitally奶昔机场 专线机场 官网地址</br>
-官方最新地址：[nxonearth.com](https://to.iix.im/nx01)（关闭代理软件访问）
+最新地址：[nxonearth.com](https://to.iix.im/nx01)（关闭代理软件访问）</br>
+官方地址：[nxonearth.com](https://to.iix.im/nx01)（关闭代理软件访问）</br>
 
+2026最新好用的机场推荐与节点分享：[https://github.com/jdnei/JiChangTuiJian](https://github.com/jdnei/JiChangTuiJian)</br>
+## Telegram VPN 机场福利社 #AD
+[机场抽奖群](https://331024.de/archives/choujiang)｜[机场聊天群](https://331024.de/archives/choujiang)｜[机场体验群](https://331024.de/archives/choujiang)</br>
+
+[https://331024.de/archives/choujiang](https://331024.de/archives/choujiang)
 
 ## 简介
 Nexitally 是一家由海外团队运营的顶级代理服务提供商，主打极致的稳定性、极速的网络体验以及全端的无缝覆盖。它的目标群体是对网络质量要求极高、预算充足的重度网络使用者、数字游民以及外贸/开发专业人员。经过多年的运营，奶昔在抗封锁能力、线路冗余设计以及日常维护效率上，都处于行业的第一梯队。

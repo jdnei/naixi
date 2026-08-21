@@ -1,7 +1,7 @@
 🇨🇳 中文 | 🇺🇸 [English](README_EN.md) | 🇷🇺 
 [Русский](README_RU.md) | 🇮🇷 [فارسی](README_FA.md)
 
-# NaiXi Nexitally奶昔机场 专线机场 官方地址(2026年8月20日更新)
+# NaiXi Nexitally奶昔机场 专线机场 官方地址(2026年8月21日更新)
 NaiXi Nexitally奶昔机场 专线机场 官网地址</br>
 最新地址：[nxonearth.com](https://to.iix.im/nx01)（关闭代理软件访问）</br>
 官方地址：[nxonearth.com](https://to.iix.im/nx01)（关闭代理软件访问）</br>

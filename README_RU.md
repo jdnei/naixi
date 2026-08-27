@@ -1,6 +1,6 @@
 🇨🇳 [中文](README.md) | 🇺🇸 [English](README_EN.md) | 🇷🇺 Русский | 🇮🇷 [فارسی](README_FA.md)
 
-# Официальный адрес NaiXi Nexitally VPN (обновлено 26 августа 2026)
+# Официальный адрес NaiXi Nexitally VPN (обновлено 27 августа 2026)
 
 Адрес официального сайта NaiXi Nexitally VPN</br>
 Последний официальный адрес: [nxonearth.com](https://nxonearth.com/signupbyemail.aspx?MemberCode=71c53b664dfa4413b7b34ffd5cd11f5820230223165339)

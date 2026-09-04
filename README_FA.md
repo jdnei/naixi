@@ -1,6 +1,6 @@
  🇨🇳 [中文](README.md) | 🇺🇸 [English](README_EN.md) | 🇷🇺 [Русский](README_RU.md) | 🇮🇷 فارسی
 
-# آدرس رسمی NaiXi Nexitally VPN (به‌روزرسانی 3 سپتامبر 2026)
+# آدرس رسمی NaiXi Nexitally VPN (به‌روزرسانی 4 سپتامبر 2026)
 
 آدرس وب‌سایت رسمی NaiXi Nexitally VPN</br>
 جدیدترین آدرس رسمی: [nxonearth.com](https://nxonearth.com/signupbyemail.aspx?MemberCode=71c53b664dfa4413b7b34ffd5cd11f5820230223165339)

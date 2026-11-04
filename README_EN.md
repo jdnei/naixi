@@ -1,6 +1,6 @@
 🇨🇳 [中文](README.md) | 🇺🇸 English | 🇷🇺 [Русский](README_RU.md) | 🇮🇷 [فارسی](README_FA.md)
 
-# NaiXi Nexitally VPN Official Website (Updated November 3, 2026)
+# NaiXi Nexitally VPN Official Website (Updated November 4, 2026)
 
 NaiXi Nexitally Premium Dedicated-Line VPN Official Website<br>
 
